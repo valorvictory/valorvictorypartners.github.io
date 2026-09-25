@@ -1,2 +1,0 @@
-# valorvictorypartners.github.io
-valorvictory
